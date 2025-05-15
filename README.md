@@ -1,1 +1,0 @@
-# Aulas-para-o-ensino-medio
